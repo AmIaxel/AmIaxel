@@ -1,8 +1,5 @@
 - 👋 Hi, I’m @AmIaxel
-- 👀 I’m not working but i (dis)like in Java, JavaScripts, Lua, Python, emm rABBIT, Hockey
-- 🌱 I’m currently learning Java, JavaScripts, Lua, Python
-- 💞️ I’m not looking to collaborate 
-- 📫 How to reach me --> U can't
+Sono fro**o p'a maggica 💛❤️
 - GigaChad is not an option
 
 <!---
