@@ -1,5 +1,5 @@
 
-Solve u're problems with stackoverflow
+I solve mine and u're problems with stackoverflow
 - GigaChad is not an option
 
 <!---
