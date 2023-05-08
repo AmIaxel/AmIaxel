@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AmIaxel
+
 Solve u're problems with stackoverflow
 - GigaChad is not an option
 
