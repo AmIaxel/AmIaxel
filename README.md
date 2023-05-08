@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AmIaxel
-Sono fro**o p'a maggica 💛❤️
+Solve u're problems with stackoverflow
 - GigaChad is not an option
 
 <!---
