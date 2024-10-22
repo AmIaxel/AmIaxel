@@ -1,6 +1,6 @@
 
 I solve mine and u're problems with stackoverflow
-- GigaChad is not an option
+- ✨ ChatGPT Programmer ✨ 
 
 <!---
 AmIaxel/AmIaxel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
